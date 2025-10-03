@@ -20,9 +20,9 @@
 
   <!-- second toggle -->
   <details>
-    <summary align="center">another section
+    <summary align="center">dni...
       <img src="https://pixels.crd.co/assets/images/gallery13/72d52a47.gif?v=29416114" width="18" alt="">
     </summary>
         <div align="center">
 habbi<br>
-uh do not int if you have them pp pony skins on ikyk what im talking about :P those things should not be walking around a safe server dawg
+basic crit ykyk<br>
