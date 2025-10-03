@@ -13,8 +13,6 @@
       i make dirty/flirtious jokes a lot if you're ok with that :3 <br>
       i make many references to popular trends/memes i hope you get them or else i'll sound schizo /j <br>
       im super duper friendly! i'll have a convo with you if you want, or we can just sit together◝(ᵔᗜᵔ)◜<br>
-      <br>
-      uh wip<br>
     </div>
   </details>
 
