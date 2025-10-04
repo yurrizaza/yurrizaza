@@ -10,10 +10,11 @@
       <img src="https://pixels.crd.co/assets/images/gallery13/72d52a47.gif?v=29416114" width="18" alt="">
     </summary>
     <div align="center">
-      i am a minooor <br>
-      i make dirty/flirtious jokes a lot if you're ok with that :3 <br>
-      i make many references to popular trends/memes i hope you get them or else i'll sound schizo /j <br>
-      im super duper friendly! i'll have a convo with you if you want, or we can just sit together◝(ᵔᗜᵔ)◜<br>
+      ➤ i am a minooor <br>
+     ➤  i make dirty/flirtious jokes a lot if you're ok with that <br>
+     ➤  i make many references to popular trends/memes i hope you get them or else i'll sound schizo /j <br>
+      ➤ im super duper friendly! i'll have a convo with you if you want, or we can just sit together◝(ᵔᗜᵔ)◜<br>
+     ➤  i dont usually accept friend requests unless wehad a  conversation<br>
     </div>
   </details>
 
@@ -23,11 +24,12 @@
       <img src="https://pixels.crd.co/assets/images/gallery13/70b547cb.gif?v=29416114" width="18" alt="">
     </summary>
         <div align="center">
-basic crit ykyk, pedos, homophobics, e-daters, racists, self-diagnosers, etc. <br>
-those standard library skins that are just pitch black and the only thing you can see is their eyes/eye shadow and their name gotta b smth like "What is it, Darling~?" <br>
-100% copied tut skins for easy to make characters<br>
-problematic fandoms you know who you are...<br>
-dark/proshippers<br>
+➤ crit ykyk, pedos, homophobics, e-daters, racists, self-diagnosers, etc. <br>
+➤ those standard library skins that are just pitch black and the only thing you can see is their eyes/eye shadow and their name gotta b smth like "What is it, Darling~?" <br>
+➤ 100% copied tut skins for easy to make characters<br>
+➤ inappropriate skins like dihh, map flag ykyk<br>
+➤ problematic fandoms you know who you are...<br>
+➤ dark/proshippers<br>
 </div>
 </details>
 
@@ -39,12 +41,12 @@ dark/proshippers<br>
     <div align="center">
     <i>format: (full fandom name) | (fav character in order)</i> <br>
       <b>i ship everything that's canon 𐔌 : </b> <br>
-      how to train your dragon | snotlout, hiccup, hookfang, my fav dragon spec is the flightmare! <br>
-      sonic | KNUCKLES, nine, rouge, sonic, metal sonic <br>
-      doukyuusei | kusakabe <br>
-      the big bang theory | leonard, amy<br>
-      octonauts | peso, kwazii<br>
-      spiderman into/across the spiderverse | miles, spot<br>
+      ➤ how to train your dragon | snotlout, hiccup, hookfang, my fav dragon spec is the flightmare! <br>
+      ➤ sonic | KNUCKLES, nine, rouge, sonic, metal sonic <br>
+      ➤ doukyuusei | kusakabe <br>
+      ➤ the big bang theory | leonard, amy<br>
+      ➤ octonauts | peso, kwazii<br>
+      ➤ spiderman into/across the spiderverse | miles, spot<br>
       music: odetari, tv girl and ayesha erotica are my mains. i like a bit of sade and bryansanon too tho!<br>
       
     
