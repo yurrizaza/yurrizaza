@@ -53,11 +53,8 @@ dark/proshippers<br>
   <img src="https://wilardo.crd.co/assets/images/gallery08/b720a305.png?v=ca679d09" width="90" alt="">
   <img src="https://64.media.tumblr.com/aabd7aedc0cf939ecc757ed5fd66e4fe/31a28201860cadde-2f/s100x200/bb34ec448b99c39a37b621802025489df6c24438.jpg" width="90" alt="">
   <img src="https://i.postimg.cc/C511vshj/dbi8xb6-7b0580a2-d9ea-4665-bfcc-6494834d98a7.png" width="90" alt="">
-  <img src="https://64.media.tumblr.com/460ec75fc2c41b61d1a8aec188ee6a91/9569ebf9d45e6770-18/s100x200/f5aee227be22dffff1b0f11b72db9818f740acbc.gif" width="90" alt="">
+  <img src="https://64.media.tumblr.com/3d46e60f5e7b3f71ef6f44f79121ee13/4db3c6b332cf1d15-9e/s100x200/aceec7dbbdf18daf3c85247343bad7ece928f9a9.pnj" width="90" alt="">
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/90d4012d-c375-40ec-b9b4-6eb4f0dcadc2/dxtysp-5e0c8a04-2c3e-48d3-8f47-257b57fb1c88.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi85MGQ0MDEyZC1jMzc1LTQwZWMtYjliNC02ZWI0ZjBkY2FkYzIvZHh0eXNwLTVlMGM4YTA0LTJjM2UtNDhkMy04ZjQ3LTI1N2I1N2ZiMWM4OC5wbmcifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6ZmlsZS5kb3dubG9hZCJdfQ.yItK0FSPa0euzFsJfl1KlEc2ukULlqD7hfGOjU2n6J4" width="90" alt="">
-  <img src="https://64.media.tumblr.com/3d46e60f5e7b3f71ef6f44f79121ee13/4db3c6b332cf1d15-9e/s100x200/aceec7dbbdf18daf3c85247343bad7ece928f9a9.pnj" width="90" alt="">
-  <img src="https://64.media.tumblr.com/3d46e60f5e7b3f71ef6f44f79121ee13/4db3c6b332cf1d15-9e/s100x200/aceec7dbbdf18daf3c85247343bad7ece928f9a9.pnj" width="90" alt="">
-  <img src="https://64.media.tumblr.com/3d46e60f5e7b3f71ef6f44f79121ee13/4db3c6b332cf1d15-9e/s100x200/aceec7dbbdf18daf3c85247343bad7ece928f9a9.pnj" width="90" alt="">
 
 </p>
 
