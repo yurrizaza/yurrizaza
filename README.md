@@ -45,9 +45,25 @@ dark/proshippers<br>
       the big bang theory | leonard, amy<br>
       octonauts | peso, kwazii<br>
       spiderman into/across the spiderverse | miles, spot<br>
+      music: odetari, tv girl and ayesha erotica are my mains. i like a bit of sade and bryansanon too tho!<br>
       
     
   </details>
+<p align="center">
+  <img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery20/a8b88ad9.gif?v=cec599d9" width="90" alt="">
+  <img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery02/9f178cb7.png?v=cec599d9" width="90" alt="">
+  <img src="https://wilardo.crd.co/assets/images/gallery08/65ac860b.png?v=ca679d09" width="90" alt="">
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b0a6e87d-9a55-426f-90a4-1b7bbc181907/dho2xog-0d58b06e-753a-440c-9a6a-08b8430e6333.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iMGE2ZTg3ZC05YTU1LTQyNmYtOTBhNC0xYjdiYmMxODE5MDcvZGhvMnhvZy0wZDU4YjA2ZS03NTNhLTQ0MGMtOWE2YS0wOGI4NDMwZTYzMzMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ADSB9KB62PuV51PjACsA-FIvYLpu2BhBeNXolOeTSQc" width="90" alt="">
+  <img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery20/a8b88ad9.gif?v=cec599d9" width="90" alt="">
+  <img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery20/a8b88ad9.gif?v=cec599d9" width="90" alt="">
+  <img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery20/a8b88ad9.gif?v=cec599d9" width="90" alt="">
+  <img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery20/a8b88ad9.gif?v=cec599d9" width="90" alt="">
+  <img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery20/a8b88ad9.gif?v=cec599d9" width="90" alt="">
+  <img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery20/a8b88ad9.gif?v=cec599d9" width="90" alt="">
+
+
+</p>
+
 
 
 
