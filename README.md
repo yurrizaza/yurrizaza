@@ -18,14 +18,13 @@
 
   <!-- second toggle -->
   <details>
-    <summary align="center">do not int...
+    <summary align="center">do not int/ on thin ice...
       <img src="https://pixels.crd.co/assets/images/gallery13/70b547cb.gif?v=29416114" width="18" alt="">
     </summary>
         <div align="center">
-basic crit ykyk, pedos, homophobics, self-diagnosers, etc. <br>
-those dihh ponies ikyk what im talking about (¬_¬") those things should not be walking around a safe server dawg<br>
+basic crit ykyk, pedos, homophobics, e-daters, racists, self-diagnosers, etc. <br>
+those standard library skins that are just pitch black and the only thing you can see is their eyes/eye shadow and their name gotta b smth like "What is it, Darling~?" <br>
 100% copied tut skins for easy to make characters<br>
-dni if we r not gonna have a 50:50 convo, i want us both to have the time to talk!<br>
 problematic fandoms you know who you are...<br>
 dark/proshippers<br>
 </div>
@@ -49,7 +48,10 @@ dark/proshippers<br>
       
     
   </details>
+
 <p align="center">
+ <i> busy: offtab but will check any whispers in the next 10 minutes or so! if you use the main chat to talk to me, i may miss it (•﹏•;)<br>
+ looking for chat: currently on tab! i usually dont stay on tab for very long unless someone is talking with me, or im fixing my ponies </i>
   <img src="https://wilardo.crd.co/assets/images/gallery08/b720a305.png?v=ca679d09" width="90" alt="">
   <img src="https://64.media.tumblr.com/aabd7aedc0cf939ecc757ed5fd66e4fe/31a28201860cadde-2f/s100x200/bb34ec448b99c39a37b621802025489df6c24438.jpg" width="90" alt="">
   <img src="https://i.postimg.cc/C511vshj/dbi8xb6-7b0580a2-d9ea-4665-bfcc-6494834d98a7.png" width="90" alt="">
