@@ -37,14 +37,14 @@ dark/proshippers<br>
       <img src="https://pixels.crd.co/assets/images/gallery13/636a45a0.gif?v=29416114" width="18" alt="">
     </summary>
     <div align="center">
-      format: (full fandom name) | (fav character in order)<br>
-      i ship everything that's canon 𐔌 : <br>
+    <i>format: (full fandom name) | (fav character in order)</i> <br>
+      <b>i ship everything that's canon 𐔌 : </b> <br>
       how to train your dragon | snotlout, hiccup, hookfang, my fav dragon spec is the flightmare! <br>
       sonic | KNUCKLES, nine, rouge, sonic, metal sonic <br>
       doukyuusei | kusakabe <br>
-      the big bang theory | leonard, amy
-      octonauts | peso, kwazii
-      spiderman into/across the spiderverse | miles, spot
+      the big bang theory | leonard, amy<br>
+      octonauts | peso, kwazii<br>
+      spiderman into/across the spiderverse | miles, spot<br>
       
     
   </details>
