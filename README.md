@@ -1,8 +1,9 @@
 
-<p align="center">
-  <img src="https://graphic.neocities.org/Tumblr_l_447426053964358.gif" width="80" alt=""><br>
-  <b>"i guess i can only try."</b> - hiccup <br>
-
+<div align="center">
+  <img src="https://graphic.neocities.org/Tumblr_l_447426053964358.gif" width="90" alt="">
+  <h4 style="margin-top:-5px;"><b>"i guess i can only try."</b> - hiccup</h4>
+</div>
+<br>
   <!-- first toggle -->
   <details>
     <summary align="center">before you int 
@@ -50,8 +51,11 @@ dark/proshippers<br>
   </details>
 
 <p align="center">
- <i> busy: offtab but will check any whispers in the next 10 minutes or so! if you use the main chat to talk to me, i may miss it (•﹏•;)<br>
- looking for chat: currently on tab! i usually dont stay on tab for very long unless someone is talking with me, or im fixing my ponies </i>
+ <i> <b>away:</b> offtab but will check any whispers in the next 10 minutes or so! if you use the main chat to talk to me, i may miss it (•﹏•;)<br>
+<b>busy:</b> pretty much the same as away but i wont be as interested in talking to others cus im doing hwk :(<br>
+ <b>looking for chat:</b> currently on tab! i usually dont stay on tab for very long unless someone is talking with me, or im fixing my ponies<br>
+ </i>
+  <br>
   <img src="https://wilardo.crd.co/assets/images/gallery08/b720a305.png?v=ca679d09" width="90" alt="">
   <img src="https://64.media.tumblr.com/aabd7aedc0cf939ecc757ed5fd66e4fe/31a28201860cadde-2f/s100x200/bb34ec448b99c39a37b621802025489df6c24438.jpg" width="90" alt="">
   <img src="https://i.postimg.cc/C511vshj/dbi8xb6-7b0580a2-d9ea-4665-bfcc-6494834d98a7.png" width="90" alt="">
