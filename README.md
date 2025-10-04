@@ -28,6 +28,26 @@ those dihh ponies ikyk what im talking about (¬_¬") those things should not be
 dni if we r not gonna have a 50:50 convo, i want us both to have the time to talk!<br>
 problematic fandoms you know who you are...<br>
 dark/proshippers<br>
+</div>
+</details>
+
+ <!-- third toggle -->
+  <details>
+    <summary align="center"> main fandoms yay ✶
+      <img src="https://pixels.crd.co/assets/images/gallery13/636a45a0.gif?v=29416114" width="18" alt="">
+    </summary>
+    <div align="center">
+      format: (full fandom name) | (fav character in order)<br>
+      i ship everything that's canon 𐔌 : <br>
+      how to train your dragon | snotlout, hiccup, hookfang, my fav dragon spec is the flightmare! <br>
+      sonic | KNUCKLES, nine, rouge, sonic, metal sonic <br>
+      doukyuusei | kusakabe <br>
+      the big bang theory | leonard, amy
+      octonauts | peso, kwazii
+      spiderman into/across the spiderverse | miles, spot
+      
+    
+  </details>
 
 
 
