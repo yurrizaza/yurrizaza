@@ -25,7 +25,8 @@
       <img src="https://pixels.crd.co/assets/images/gallery13/70b547cb.gif?v=29416114" width="18" alt="">
     </summary>
         <div align="center">
-➤ crit ykyk, pedos, homophobics, e-daters, racists, self-diagnosers, etc. <br>
+➤ crit ykyk, pedos, homophobics, e-daters, racists, etc. <br>
+➤ self-diagnosers of any kind and ppl who fake illnesses for stupid reasons such as attention <br>       
 ➤ those standard library skins that are just pitch black and the only thing you can see is their eyes/eye shadow and their name gotta b smth like "What is it, Darling~?" <br>
 ➤ 100% copied tut skins for easy to make characters<br>
 ➤ inappropriate skins like dihh, map flag ykyk<br>
