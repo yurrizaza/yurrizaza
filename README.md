@@ -58,7 +58,7 @@
 
 <p align="center">
  <i> <b>away:</b> offtab but will check any whispers in the next 10 minutes or so! if you use the main chat to talk to me, i may miss it (•﹏•;)<br>
-<b>busy:</b> pretty much the same as away but i wont be as interested in talking to others cus im doing hwk or wtv :/ will ofc answer any whispers br>
+<b>busy:</b> pretty much the same as away but i wont be as interested in talking to others cus im doing hwk or wtv :/ will ofc answer any whispers <br>
  <b>looking for chat:</b> currently on tab! i usually dont stay on tab for very long unless someone is talking with me, or im fixing my ponies<br>
    <br>
    <b>feel free to int with me at any time i am online, no matter my status! i am super friendly so pls talk to me (via whisp if busy/away) if we share any interests </b>
