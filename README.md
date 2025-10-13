@@ -25,13 +25,15 @@
       <img src="https://pixels.crd.co/assets/images/gallery13/70b547cb.gif?v=29416114" width="18" alt="">
     </summary>
         <div align="center">
+<b>dni... </b><br>
 ➤ crit ykyk, pedos, homophobics, e-daters, racists, etc. <br>
-➤ self-diagnosers of any kind and ppl who fake illnesses for stupid reasons such as attention <br>       
+➤ self-diagnosers of any kind and ppl who fake illnesses for stupid reasons such as attention <br>  
+➤ dark/proshippers<br>
+➤ inappropriate skins like dihh, racist stuff and problematic people idkk ykwim?<br>
+<b>on thin ice...</b><br>
 ➤ those standard library skins that are just pitch black and the only thing you can see is their eyes/eye shadow and their name gotta b smth like "What is it, Darling~?" <br>
 ➤ 100% copied tut skins for easy to make characters<br>
-➤ inappropriate skins like dihh, map flag ykyk<br>
 ➤ problematic fandoms you know who you are...<br>
-➤ dark/proshippers<br>
 </div>
 </details>
 
@@ -56,10 +58,13 @@
 
 <p align="center">
  <i> <b>away:</b> offtab but will check any whispers in the next 10 minutes or so! if you use the main chat to talk to me, i may miss it (•﹏•;)<br>
-<b>busy:</b> pretty much the same as away but i wont be as interested in talking to others cus im doing hwk :(<br>
+<b>busy:</b> pretty much the same as away but i wont be as interested in talking to others cus im doing hwk or wtv :/ will ofc answer any whispers br>
  <b>looking for chat:</b> currently on tab! i usually dont stay on tab for very long unless someone is talking with me, or im fixing my ponies<br>
+   <br>
+   <b>feel free to int with me at any time i am online, no matter my status! i am super friendly so pls talk to me (via whisp if busy/away) if we share any interests </b>
  </i>
   <br>
+  <br> 
   <img src="https://wilardo.crd.co/assets/images/gallery08/b720a305.png?v=ca679d09" width="90" alt="">
   <img src="https://64.media.tumblr.com/aabd7aedc0cf939ecc757ed5fd66e4fe/31a28201860cadde-2f/s100x200/bb34ec448b99c39a37b621802025489df6c24438.jpg" width="90" alt="">
   <img src="https://i.postimg.cc/C511vshj/dbi8xb6-7b0580a2-d9ea-4665-bfcc-6494834d98a7.png" width="90" alt="">
