@@ -28,9 +28,10 @@
 <b>dni... </b><br>
 ➤ crit ykyk, pedos, homophobics, e-daters, racists, etc. <br>
 ➤ self-diagnosers of any kind and ppl who fake illnesses for stupid reasons such as attention <br>  
-➤ dark/proshippers<br>
-➤ inappropriate skins like dihh, racist stuff and problematic people idkk ykwim?<br>
-<b>on thin ice...</b><br>
+➤ dark/proshippers<br and problematic people idkk ykwim?<br>
+<b>on thin ice...</b><br>>
+➤ inappropriate skins like dihh, racist stuff
+➤ anyone below the age of 14
 ➤ those standard library skins that are just pitch black and the only thing you can see is their eyes/eye shadow and their name gotta b smth like "What is it, Darling~?" <br>
 ➤ 100% copied tut skins for easy to make characters<br>
 ➤ problematic fandoms you know who you are...<br>
@@ -52,6 +53,25 @@
       ➤ octonauts | peso, kwazii<br>
       ➤ spiderman into/across the spiderverse | miles, spot<br>
       music: odetari, tv girl and ayesha erotica are my mains. i like a bit of sade and bryansanon too tho!<br>
+
+    <!-- second toggle -->
+  <details>
+    <summary align="center">do not int/ on thin ice...
+      <img src="https://pixels.crd.co/assets/images/gallery13/70b547cb.gif?v=29416114" width="18" alt="">
+    </summary>
+        <div align="center">
+<b>dni... </b><br>
+➤ crit ykyk, pedos, homophobics, e-daters, racists, etc. <br>
+➤ self-diagnosers of any kind and ppl who fake illnesses for stupid reasons such as attention <br>  
+➤ dark/proshippers<br and problematic people idkk ykwim?<br>
+<b>on thin ice...</b><br>>
+➤ inappropriate skins like dihh, racist stuff
+➤ anyone below the age of 14
+➤ those standard library skins that are just pitch black and the only thing you can see is their eyes/eye shadow and their name gotta b smth like "What is it, Darling~?" <br>
+➤ 100% copied tut skins for easy to make characters<br>
+➤ problematic fandoms you know who you are...<br>
+</div>
+</details>
       
     
   </details>
