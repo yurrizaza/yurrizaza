@@ -2,7 +2,7 @@
   <h1>if i catch anyone copyping my ponies i will be sticking my toe up their ahh. </h1>
 
   <img src="https://graphic.neocities.org/Tumblr_l_447426053964358.gif" width="90" alt="">
-  <h4 style="margin-top:-5px;"><b>"i guess i can only try."</b> - hiccup</h4>
+  <h4 style="margin-top:-5px;"><b>"i guess you can only try."</b> - hiccup</h4>
 </div>
 <br>
   <!-- first toggle -->
@@ -47,7 +47,7 @@
     <i>format: (full fandom name) | (fav character in order)</i> <br>
       <b>i ship everything that's canon 𐔌 : </b> <br>
       ➤ how to train your dragon | snotlout, hiccup, hookfang, my fav dragon spec is the flightmare! <br>
-      ➤ sonic | KNUCKLES, nine, rouge, sonic, metal sonic <br>
+      ➤ sonic | KNUCKLES, nine, rouge, sonic, metal sonic (i ship knuxouge, and sonamy btw, not sonadow or shadouge) <br>
       ➤ doukyuusei | kusakabe <br>
       ➤ the big bang theory | leonard, amy<br>
       ➤ octonauts | peso, kwazii<br>
