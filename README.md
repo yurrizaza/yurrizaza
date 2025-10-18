@@ -45,8 +45,8 @@
     </summary>
     <div align="center">
     <i>format: (full fandom name) | (fav character in order)</i> <br>
-      <b>i ship everything that's canon 𐔌 : </b> <br>
-      ➤ how to train your dragon | snotlout, hiccup, hookfang, my fav dragon spec is the flightmare! <br>
+      <b>i ship everything that's canon unless mentioned otherwise 𐔌 : </b> <br>
+      ➤ how to train your dragon | snotlout, hiccup, hookfang, my fav dragon spec is the flightmare! (i ship snotnut lawl) <br>
       ➤ sonic | KNUCKLES, nine, rouge, sonic, metal sonic (i ship knuxouge, and sonamy btw, not sonadow or shadouge) <br>
       ➤ doukyuusei | kusakabe <br>
       ➤ the big bang theory | leonard, amy<br>
