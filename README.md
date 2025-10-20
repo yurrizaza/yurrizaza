@@ -15,7 +15,8 @@
      ➤  i make dirty/flirtious jokes a lot if you're ok with that <br>
      ➤  i make many references to popular trends/memes i hope you get them or else i'll sound schizo /j <br>
       ➤ im super duper friendly! i'll have a convo with you if you want, or we can just sit together◝(ᵔᗜᵔ)◜<br>
-     ➤  i dont usually accept friend requests unless wehad a  conversation<br>
+     ➤  i dont usually accept friend requests unless we've had a  conversation<br>
+       ➤ if im sitting with you and another person comes (and sits with you) im likely to leave 😓 nothing personal
     </div>
   </details>
 
