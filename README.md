@@ -1,5 +1,5 @@
 <div align="center">
-  <h1>if i catch anyone copyping my ponies i will be sticking my toe up their ahh. </h1>
+  <h1>if i catch anyone copyping my ponies i will be sticking my toe up their ahh. im srs bro no copy or inspo w\ perm. ok? ok. </h1>
 
   <img src="https://graphic.neocities.org/Tumblr_l_447426053964358.gif" width="90" alt="">
   <h4 style="margin-top:-5px;"><b>"i guess you can only try."</b> - hiccup</h4>
