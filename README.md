@@ -29,9 +29,9 @@
 <b>dni... </b><br>
 ➤ crit ykyk, pedos, homophobics, e-daters, racists, etc. <br>
 ➤ self-diagnosers of any kind and ppl who fake illnesses for stupid reasons such as attention <br>  
-➤ dark/proshippers<br and problematic people idkk ykwim?<br>
+➤ dark/proshippers<br> 
 <b>on thin ice...</b><br>>
-➤ inappropriate skins like dihh, racist stuff
+➤ inappropriate skins like dihh, racist stuff and problematic people idkk ykwim? <br>
 ➤ anyone below the age of 14
 ➤ those standard library skins that are just pitch black and the only thing you can see is their eyes/eye shadow and their name gotta b smth like "What is it, Darling~?" <br>
 ➤ 100% copied tut skins for easy to make characters<br>
