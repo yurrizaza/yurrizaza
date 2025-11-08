@@ -53,6 +53,8 @@
       ➤ the big bang theory | leonard, amy<br>
       ➤ octonauts | peso, kwazii<br>
       ➤ spiderman into/across the spiderverse | miles, spot<br>
+      ➤ club penguin | gary
+      ➤ moshi monsters online | poppet and nodkins
      ➤ music: odetari, tv girl and ayesha erotica are my mains. i like a bit of sade too tho!<br>
 
   </details>
