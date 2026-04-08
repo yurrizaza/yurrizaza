@@ -50,12 +50,11 @@
       ➤ how to train your dragon | snotlout, hiccup, hookfang, my fav dragon spec is the flightmare! (i ship snotnut lawl) <br>
       ➤ sonic | KNUCKLES, nine, rouge, sonic, metal sonic (i ship knuxouge, and sonamy btw) <br>
       ➤ doukyuusei | kusakabe <br>
-      ➤ the big bang theory | leonard, amy<br>
+      ➤ the big bang theory | leonard, amy <br>
       ➤ octonauts | peso, kwazii<br>
       ➤ spiderman into/across the spiderverse | miles, spot<br>
-      ➤ club penguin | gary
-      ➤ moshi monsters online | poppet and nodkins
-     ➤ music: odetari, tv girl and ayesha erotica are my mains. i like a bit of sade too tho!<br>
+      ➤ south park | any of the main 4 leaning towards cartman whoops (i ship creek, style, bunny, and kiiinda kyman and k2)<br>
+     ➤ music: odetari, tv girl, msi, the rare occasions, rebbzyx, sade and ayesha erotica are my main! <br>
 
   </details>
 
