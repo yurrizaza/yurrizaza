@@ -2,7 +2,7 @@
   <h1>if i catch anyone copyping my ponies i will be sticking my toe up their ahh. im srs bro no copy or inspo w\ perm. ok? ok. </h1>
 
   <img src="https://graphic.neocities.org/Tumblr_l_447426053964358.gif" width="90" alt="">
-  <h4 style="margin-top:-5px;"><b>"we <b>don't</b> trust each other, and we <b>don't</b> like each other."</b></h4>
+  <h4 style="margin-top:-5px;"><b>"we don't trust each other, and we don't like each other."</b></h4>
 </div>
 <br>
   <!-- first toggle -->
