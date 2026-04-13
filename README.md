@@ -53,7 +53,7 @@
       ➤ the big bang theory | leonard, amy <br>
       ➤ octonauts | peso, kwazii<br>
       ➤ spiderman into/across the spiderverse | miles, spot<br>
-      ➤ south park | any of the main 4 leaning towards cartman whoops (i ship creek, style, bunny, and kiiinda kyman and k2)<br>
+      ➤ south park | any of the main 4 leaning towards cartman whoops (i ship creek, style, bunny, one-sided kyman, and a lil of stutters)<br>
      ➤ music: odetari, tv girl, msi, the rare occasions, rebbzyx, sade and ayesha erotica are my main! <br>
 
   </details>
